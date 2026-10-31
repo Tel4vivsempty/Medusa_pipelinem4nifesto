@@ -1,2 +1,2 @@
-# Medusa_pipelinem4nifesto
-manifesto de contrainteligencia basada en un laberinto auto sistémico.
+# M4nifes7o
+Y4 B4s74
